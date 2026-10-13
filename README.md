@@ -1,0 +1,1 @@
+# Tugas2Praktikum_SistemOperasi_Ferdinandaffariady
